@@ -1,5 +1,5 @@
 
-movies.com by @kumenit desta
+movies.com by @kumenit desta.
 
 Free for personal and commercial use
 
